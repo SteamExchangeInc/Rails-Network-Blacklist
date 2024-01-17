@@ -1,6 +1,7 @@
 # Blacklisted Project Owner: Jayde Herrick
 
 **Project Name:** The NFT Arcade
+**ID Verfied:** Yes
 
 **Blacklisted for:**
 
