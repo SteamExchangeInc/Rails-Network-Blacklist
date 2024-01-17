@@ -1,0 +1,1 @@
+Jayde Herrick is a scammer... dont hire him for your team.
