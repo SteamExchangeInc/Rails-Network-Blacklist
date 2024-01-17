@@ -4,6 +4,7 @@
 
 **ID Verfied:** Yes
 
+
 **Blacklisted for:**
 
 - Accepting $25,000 from Steam Exchange Inc and then denying he owes it back.
