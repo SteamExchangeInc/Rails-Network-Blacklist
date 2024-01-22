@@ -4,6 +4,8 @@
 
 **ID Verfied:** Yes
 
+**Legal Jurisdiction:** Australia
+
 
 **Blacklisted for:**
 
